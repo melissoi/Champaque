@@ -6,7 +6,10 @@ Mrs. Sarah Nadhia (Master of Malaysian Culinary Traditions)
 Time open:
 Everyday from 11am to 10pm
 
-Order and delivery service chatbot link:
+Order and catering inquiries link:
+wa.me/60195910221
+
+website link:
 (https://champaque-restaurant-tkrj83a.gamma.site/)
 
 Location:
